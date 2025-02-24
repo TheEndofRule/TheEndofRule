@@ -7,5 +7,17 @@
 - www.roblox.com
 - www.bluehatcrew.xyz
 - www.v0-new-project-qwe4rt5ykup.vercel.app
+- https://www.nodiddydogwasatthediddyparty.global.ssl.fastly.net/compiled/blockblast/
+
+https://www.nodiddydogwasatthediddyparty.global.ssl.fastly.net/compiled/blockblast/
+
+https://www.nodiddydogwasatthediddyparty.global.ssl.fastly.net/compiled/retro-bowl/
+
+https://www.nodiddydogwasatthediddyparty.global.ssl.fastly.net/compiled/fnaf2/
+
+https://www.nodiddydogwasatthediddyparty.global.ssl.fastly.net/compiled/fnaf3/
+
+https://www.nodiddydogwasatthediddyparty.global.ssl.fastly.net/compiled/ucn/
+
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Im from TN! and im black.
