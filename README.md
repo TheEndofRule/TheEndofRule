@@ -5,6 +5,7 @@
 - htpps://www.google.com
 - www.now.gg
 - www.roblox.com
-- 
+- www.bluehatcrew.xyz
+- www
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Im from TN! and im black.
