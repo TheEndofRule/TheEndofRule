@@ -4,7 +4,7 @@
 - 📫 How to reach me: Spencdem000@outlook.com
 - htpps://www.google.com
 - www.now.gg
-- roblox.com
+- www.roblox.com
 - 
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Im from TN! and im black.
