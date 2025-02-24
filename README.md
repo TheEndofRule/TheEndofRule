@@ -6,6 +6,6 @@
 - www.now.gg
 - www.roblox.com
 - www.bluehatcrew.xyz
-- www
+- www.v0-new-project-qwe4rt5ykup.vercel.app
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Im from TN! and im black.
