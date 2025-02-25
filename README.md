@@ -3,6 +3,11 @@
 - 🌱 I’m currently learning: boring shit in school
 - 📫 How to reach me: Spencdem000@outlook.com
 - htpps://www.google.com
+- www.weatherscan.net
+- www.weatherscan.me
+- www.live.mistwx.com
+- www.streaming.weatherranch.com
+- www.weatherstar.dev
 - www.now.gg
 - www.roblox.com
 - www.bluehatcrew.xyz
